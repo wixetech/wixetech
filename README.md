@@ -1,1 +1,1 @@
-idk what to put here. for now, you can check [my website](https://wixetech.dev), if you want, i think.
+umm, i don't know what to write here. maybe i'll put something here soon.
